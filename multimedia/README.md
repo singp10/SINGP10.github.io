@@ -1,1 +1,0 @@
-# SINGP10.github.io
